@@ -1,1 +1,1 @@
-https://hathai088.github.io/Profile-Web/
+https://hathai088.github.io/profile-Web/
